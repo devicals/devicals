@@ -1,0 +1,6 @@
+- 👋 Hi, I’m `3rror`, and I'm a YouTuber!
+- 👀 I’m interested in becoming the best gamer there ever was.
+- 🌱 I’m currently learning the to play piano- hard + insane mode.
+- 📫 Contact me: `3rr0r.d3v@gmail.com` or DM me @ `3rrorYT | Don't Ping#6509`
+- 🌐 Website: https://3rr0r-official.carrd.co/
+  - `Note: This was only hosted on carrd.co, I did not custom make it on Carrd. Please do not think that I did not code this.`
